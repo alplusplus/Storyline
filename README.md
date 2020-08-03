@@ -14,3 +14,7 @@ Just about to start a real story, let me try this one more time.
 LALALALA, LALALALA!
 LALALALA, LALALALA!
 LALALALA, LALALALA!
+Coming fresh to deal with some git.
+ New day, new luck.
+
+ 
