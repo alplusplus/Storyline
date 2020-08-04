@@ -14,4 +14,5 @@ Coming fresh to deal with some git.
 
 New day, new luck.
 
+New day, new luck - again and again
  
